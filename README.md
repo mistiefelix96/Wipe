@@ -219,4 +219,4 @@ Wipe is offered as a full free version with all features and updates included. T
 Take control of your privacy today! **Download Wipe for free and secure your personal information!**
 
 ---
-**Last updated:** 2026-10-10 20:29:06 UTC
+**Last updated:** 2026-10-11 00:06:47 UTC
